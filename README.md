@@ -1,0 +1,1 @@
+PelzX Personal Website is a modern, professional platform showcasing my creative identity, skills, projects, and digital expertise. Designed with a clean interface and responsive layout, it serves as my online portfolio, connecting my creativity with opportunities for collaboration, growth, and innovation.
